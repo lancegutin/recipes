@@ -27,6 +27,4 @@
 1. Add greens and stir, making sure they’re submerged in the liquid. Cook until they wilt and soften, 3 to 7 minutes, depending on what you’re using. (Swiss chard and spinach will wilt and soften much faster than kale or collard greens.) Season again with salt and pepper.
 1. Divide among bowls and top with mint, reserved chickpeas, a sprinkle of red-pepper flakes and a good drizzle of olive oil. Serve alongside yogurt and toasted pita if using; dust the yogurt with turmeric if you'd like.
 
-## Source
-
-https://cooking.nytimes.com/recipes/1019772-spiced-chickpea-stew-with-coconut-and-turmeric
+[Source](https://cooking.nytimes.com/recipes/1019772-spiced-chickpea-stew-with-coconut-and-turmeric)
